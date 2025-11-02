@@ -1,4 +1,4 @@
-![alt text][image.jpg](https://f.woowoowoowoo.net/resize/250x400/3f/5e/3f5ee1ccd5181450931d162c5b8e188f/3f5ee1ccd5181450931d162c5b8e188f.jpg)
+![Spider-Man](https://imgs.search.brave.com/-DtoGlXkp4s2zCtRotx5ApciltJUBZpwsuHiYKP4qhk/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly9pLnJl/ZGQuaXQvdDdmbGd2/dzZ5YW5mMS5qcGVn)
 
 # Favorite Series: Spider-Man
 > *"With the great power comes with the great responsibility"*
